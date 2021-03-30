@@ -8,4 +8,4 @@ https://healthmedi.io
 https://www.facebook.com/healthmedicoin
 
 # twitter
-https://twitter.com/healthmedicoin
+https://twitter.com/HEALTHMEDI2
